@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi there! 👋
+I'm The Dommo, some dumbfuck that joined this website just so I could make a weird bullshit website. :P
 <!--
 **The-Dommo/The-Dommo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
